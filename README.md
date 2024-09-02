@@ -6,6 +6,5 @@
 - 🎓 Atualmente aprendendo linguagem C
 - 🐾 Experiência profissional com edição de vídeo
 - 🌐 Estudando Inglês e Alemão
-- ✊🏼 Simpatizante da causa trabalhadora
 
 - ![actually](https://github.com/gvgcc/gvgcc/assets/168375482/e41628ad-33b5-46fc-86cf-53f1061eef13)
